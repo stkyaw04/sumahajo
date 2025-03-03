@@ -2,9 +2,9 @@
 
 Finally, Jack decided to end his show with a grand finale. “Now, I will attempt the impossible — juggling flaming torches while riding a unicycle! ” he declared, even though he had never practiced that before. 
 
-Lucy, Tom, and Mia looked worried. “Jack, are you sure about this? ” Lucy asked, biting her lip. 
-
 “Don’t worry! How hard can it be? ” Jack grinned, putting on a unicycle he borrowed from a friend. He lit the torches and, heart racing, began to juggle. For a moment, everything seemed to go right. The crowd gasped, impressed. 
+
+Lucy, Tom, and Mia looked worried. “Jack, are you sure about this? ” Lucy asked, biting her lip. 
 
 But then he lost his balance! “Whoa! ” Jack yelled, wobbling and nearly falling off the unicycle. The torches flew out of his hands and landed harmlessly into a soft pile of hay nearby. The crowd erupted in laughter and applause, more amused than scared. 
 
