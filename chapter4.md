@@ -1,4 +1,4 @@
-# Chapter 4
+# Grand Finale
 
 Finally, Jack decided to end his show with a grand finale. “Now, I will attempt the impossible — juggling flaming torches while riding a unicycle! ” he declared, even though he had never practiced that before. 
 
@@ -14,7 +14,7 @@ As the audience clapped, Jack realized something important. Even though he wasn�
 
 Tom, Lucy, and Mia rushed to the stage. “You know, Jack, you're more fun than anyone,” Tom said, patting his back. 
 
-“You really are our Jack of all trades! ” Mia added with a smile. 
+“You really are our Jack of all trades! ” Mia added with a smile then a chuckle. 
 
 “I guess I’m just a fun mix, after all! ” Jack chuckled, feeling happy. He learned that sometimes it doesn’t matter if you’re a master. What counts is the laughter, the joy you bring, and the memories you create with friends. 
 
