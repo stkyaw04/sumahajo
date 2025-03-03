@@ -1,4 +1,4 @@
-# Chapter 3
+# The Exciting Day
 
 The day finally arrived. The stage was set in the park, decorated with colorful lights and ribbons. Excitement buzzed in the air as the audience gathered. Lucy danced gracefully, Tom played an impressive set on his drums, and Mia sang beautifully, wowing everyone. 
 

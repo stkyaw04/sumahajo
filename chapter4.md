@@ -1,4 +1,4 @@
-# Chapter 4
+# Grand Finale
 
 Finally, Jack decided to end his show with a grand finale. “Now, I will attempt the impossible — juggling flaming torches while riding a unicycle! ” he declared, even though he had never practiced that before. 
 

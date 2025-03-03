@@ -1,10 +1,10 @@
-# Chapter 1
+# Jack and his friends
 
 Once in a small town called Breezy Hollow, where the sun smiled every day and the wind played with the trees, there lived a boy named Jack. Jack was known for his many talents, but there was one problem: he was a Jack of all trades but a master of none. 
 
-Jack could juggle, swim, paint, and even bake cookies, but he never stuck to one thing long enough to become truly great at it. His friends, Lucy, Tom, and Mia, often teased him about it. 
+Jack could juggle, swim, paint, and even bake cookies, but he never stuck to one thing long enough to become truly great at it. His friends, Mary, Tom, and Mia, often teased him about it. 
 
-"Hey, Jack, what are you up to today? " Lucy asked one sunny morning. 
+"Hey, Jack, what are you up to today? " Mary asked one sunny morning. 
 
 "Maybe I’ll learn the guitar! " Jack replied enthusiastically. 
 

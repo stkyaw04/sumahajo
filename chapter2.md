@@ -1,4 +1,4 @@
-# Chapter 2
+# Exciting News
 
 One day, as the group lounged in the park, Jack had an idea. “What if we hosted a talent show? I'll show everyone my skills! "
 
